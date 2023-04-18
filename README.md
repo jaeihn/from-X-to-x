@@ -1,9 +1,12 @@
 ## Discussion 
 
-- Harry Frankfurt \<On Bullshit> 2005
+- Harry Frankfurt \<On Bullshit\> 2005
 
 ## Education 
 
-- Tara Westover \<Educated> 2018
-- John Mighton \<All Things Being Equal> 2020
+- Tara Westover \<Educated\> 2018
+- John Mighton \<All Things Being Equal\> 2020
 
+## Happiness 
+
+- Ashley Whillans \<Time Smart\> 2020
